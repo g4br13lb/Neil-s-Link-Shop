@@ -1,1 +1,2 @@
-# Neil-s-Whitening-Products
+# Neil's Link Shop
+Hello, I am the owner of this website **Neil**. My goal for this website is to find popular items in other shopping apps and find the best deal for you. First of all I do not want to tarnish the shopping apps who spent time developing that is why I am giving away the links to that website. Second my reason for opening this website is because I see good quality items but they're too expensive that is why when I scroll through Lazada or Shoppee and find a good deal I will send the link to this website. Last of all this will only benefit, you the user and the seller I will not put any charges in the links.
